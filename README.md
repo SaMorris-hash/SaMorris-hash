@@ -1,2 +1,2 @@
 Hi, I’m @SaMorris-hash
-I am a Bachelor of Computer Science (CyberSecurity) graduate
+Bachelor of Computer Science (CyberSecurity) Graduate - The University of Adelaide
